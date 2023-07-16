@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Jude224499
+- 👀 I’m interested in gaming
+- 📫 How to reach me via phone 337 207 9027
